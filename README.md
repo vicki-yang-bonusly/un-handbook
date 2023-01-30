@@ -173,13 +173,19 @@ Bonusly offers fully-covered health/dental/vision benefits that are significantl
 Bonusly offers a 401k with employer matching through [Guideline](https://www.guideline.com/). Bonusly matches 100% of the first 3% contributed, and 50% of the next 2% (for a max employer contribution of 4%).
 
 ### Professional Development
-Bonusly will reimburse approved professional development expenses, up to $2000 per employee per year.
+Bonusly will reimburse approved professional development expenses, up to $1500 per employee per year.
 
 ### Wellness
-Bonusly will reimburse approved wellness expenses (e.g. gym membership, yoga classes), up to $500 per employee per year. Employees can also get a discount on their membership at [Movement Climbing + Fitness](https://movementgyms.com/) by joining the "Smartly, Inc." corporate account.
+Bonusly will reimburse approved wellness expenses (e.g. gym membership, yoga classes), up to $750 per employee per year. Employees can also get a discount on their membership at [Movement Climbing + Fitness](https://movementgyms.com/) by joining the "Smartly, Inc." corporate account.
 
-### Transit
-Boulder HQ-based employees are eligible for the free [EcoPass program](https://www.bouldercounty.org/transportation/multi-modal/bus/ecopass/). Employees in other locations are eligible to receive a 25% reimbursement on a monthly transit pass.
+### Work From Anywhere
+Bonuslians can work from anywhere in the world for 30 days if they like!
+
+### Relax From Home Days
+Any months that don't have a 3 day weekend will have a Relax From Home holiday.
+
+### Bonusly All Company Offsite
+Every year Bonusly holds an all expenses paid company offsite both in person (must be vaccinated to attend) and virtually (for those who can't attend for whatever reason)!
 
 ### Bonusly for Bonusly Employees
 Every employee has a generous budget to give out in bonuses to their colleagues. You can redeem your earnings for gift cards, cash, and charitable donations, and we're always excited about suggestions for new rewards to add to our catalog!
